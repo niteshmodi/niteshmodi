@@ -15,8 +15,6 @@
 
 - 😉 I love to connect with developers so dm me @nelinbaz on twiiter
 
-- 💬 I love creating content on youtube
-
 - 🎯 I am looking for some jobs as a fresher 
 
 
